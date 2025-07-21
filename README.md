@@ -13,4 +13,4 @@ Feel free to add my discord (In which I might not add back/sorry) And follow my 
 <p align="center">
 Matching with @MilkCookie999 <code style="color : red">(they're on github please follow them, their profile is on my bio!)</code>
 <p align="center">
-<code style="color : red">Can't you just make juice with your alchemy?</code>
+<code style="color : red">"Can't you just make juice with your alchemy?"</code>
