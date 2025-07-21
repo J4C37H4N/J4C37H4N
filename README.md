@@ -1,5 +1,5 @@
 <p align="center">
-<code style="color : red">Vampire is so me,__ both are lazy and chill. Perhaps even want to sleep everyday.</code>
+<code style="color : red">Why so serious? Let me pour you some juice.</code>
 <p align="center">
   <img width="600" height="550" alt="image" src="https://github.com/user-attachments/assets/3b4b758e-cd60-4ad4-84f8-82375ce08c07" />
 <p align="center">
