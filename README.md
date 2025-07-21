@@ -1,16 +1,17 @@
-## Hi there 👋
-
-<!--
-**J4C37H4N/J4C37H4N** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<p align="center">
+<code style="color : red">Vampire is so me,__ both are lazy and chill. Perhaps even want to sleep everyday.</code>
+<p align="center">
+  <img width="600" height="550" alt="image" src="https://github.com/user-attachments/assets/3b4b758e-cd60-4ad4-84f8-82375ce08c07" />
+<p align="center">
+  @jace_dumbo on https://discord.com 
+<p align="center">
+@jace6809 on https://tiktok.com
+<p align="center">
+Feel free to add my discord (In which I might not add back/sorry) And follow my tiktok'.
+<p align="center">
+  <img width="400" height="250" alt="image" src="https://github.com/user-attachments/assets/46b1fae9-eef1-4202-bc5e-82a3034e295d" />
+<p align="center">
+Supposedly to match with @MilkCookie999 <code style="color : red">(they're on github please follow them)</code>
+ by being vamp but uh...
+<p align="center">
+<code style="color : red">Too lazy...</code>
