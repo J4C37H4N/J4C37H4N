@@ -2,8 +2,8 @@
 <code style="color : red">"By Odin's beard.."</code>
 <p align="center">
 <img width="1199" height="400" alt="image" src="https://github.com/user-attachments/assets/23779586-875a-4fc6-bc55-bd350689e549" />
-<p align="center">
-https://vitalityloki.straw.page/
+
+
 <p align="center">
   @jace_dumbo on https://discord.com 
 <p align="center">
