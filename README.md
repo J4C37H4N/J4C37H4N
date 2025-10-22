@@ -1,23 +1,28 @@
 <p align="center">
-<code style="color : red">"By Odin's beard.."</code>
+<code style="color : red">"I've got red in my ledger ."</code>
 <p align="center">
-<img width="1199" height="400" alt="image" src="https://github.com/user-attachments/assets/23779586-875a-4fc6-bc55-bd350689e549" />
+  <img width="1200" height="320" alt="image" src="https://github.com/user-attachments/assets/bead1556-365e-4118-b040-d7718d9b902b" />
+
+<p align="center">
+Please talk to me about DC and marvel !
+<I'm a fan of both!, please tell me lore(s) or introduce other characters to me whom I don't know !
+ <p align="center">
+Unreasonable toxic people STRICTLY dni . 
+<p align="center">
+ I always accept ' c+h ' in pt !
+<p align="center">
+  Usually goes afk around Marvel/DC area in PT ! Which is near/beside the bakery .
+<p align="center">
+  I am a huge fan of both Nat and Loki ! (I prefer Loki more heh .)
+  <p align="center">
+  https://vitalityloki.straw.page/
+  <p align="center">
+  <img width="1200" height="320" alt="image" src="https://github.com/user-attachments/assets/1fc43f0c-c7c7-4b68-8af3-5902d90f1f41" />
 
 
-<p align="center">
-  @jace_dumbo on https://discord.com 
+
+
+ 
+
 <p align="center">
 @jace6809 on https://tiktok.com
-<p align="center">
-Feel free to add my discord (In which I might not add back/sorry) And follow my tiktok'.
-<p align="center">
- <img width="967" height="405" alt="image" src="https://github.com/user-attachments/assets/9c917859-a509-42f6-8969-3510cb164cf6" />
-
-<p align="center">
-Buddy___: @MilkCookie999 <code style="color : red">
-<p align="center">
-<code style="color : red">"I'm listening."</code>
-
-<p align="center">
-<code style="color : red">Please talk to me about DC and marvel!</code>
-<code style="color : red">I'm a fan of both!, please tell me lore(s) or introduce other characters to me whom I don't know!</code>
