@@ -4,16 +4,17 @@
   <img width="1200" height="320" alt="image" src="https://github.com/user-attachments/assets/bead1556-365e-4118-b040-d7718d9b902b" />
 
 <p align="center">
-Please talk to me about DC and marvel !
-<I'm a fan of both!, please tell me lore(s) or introduce other characters to me whom I don't know !
+ Please talk to me about DC and marvel !
+<p align="center">
+  <I'm a fan of both!, please tell me lore(s) or introduce other characters to me whom I don't know !
  <p align="center">
-Unreasonable toxic people STRICTLY dni . 
+ Unreasonable toxic people <sub>STRICTLY </sub> dni . 
 <p align="center">
  I always accept ' c+h ' in pt !
 <p align="center">
   Usually goes afk around Marvel/DC area in PT ! Which is near/beside the bakery .
 <p align="center">
-  I am a huge fan of both Nat and Loki ! (I prefer Loki more heh .)
+	<ins>I am a huge fan of both Nat and Loki ! (I prefer Loki more heh .)</ins>  
   <p align="center">
   https://vitalityloki.straw.page/
   <p align="center">
