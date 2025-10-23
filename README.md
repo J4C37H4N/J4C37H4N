@@ -6,7 +6,7 @@
 <p align="center">
  Please talk to me about DC and marvel !
 <p align="center">
-  <I'm a fan of both!, please tell me lore(s) or introduce other characters to me whom I don't know !
+ I'm a fan of both!, please tell me lore(s) or introduce other characters to me whom I don't know !
  <p align="center">
  Unreasonable toxic people <sub>STRICTLY </sub> dni . 
 <p align="center">
