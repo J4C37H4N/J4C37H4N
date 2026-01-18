@@ -8,9 +8,6 @@
 <p align="center">
  I'm a fan of both!, please tell me lore(s) or introduce other characters to me whom I don't know !
  <p align="center">
- Unreasonable toxic people <sub>STRICTLY </sub> dni . 
-<p align="center">
- I always accept ' c+h ' in pt !
 <p align="center">
   Usually goes afk around Marvel/DC area in PT ! Which is near/beside the bakery .
 <p align="center">
