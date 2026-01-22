@@ -1,27 +1,11 @@
-<p align="center">
-<code style="color : red">"I've got red in my ledger ."</code>
-<p align="center">
-  <img width="1200" height="320" alt="image" src="https://github.com/user-attachments/assets/bead1556-365e-4118-b040-d7718d9b902b" />
 
-<p align="center">
- Please talk to me about DC and marvel !
-<p align="center">
- I'm a fan of both!, please tell me lore(s) or introduce other characters to me whom I don't know !
- <p align="center">
-<p align="center">
-  Usually goes afk around Marvel/DC area in PT ! Which is near/beside the bakery .
-<p align="center">
-	<ins>I am a huge fan of both Nat and Loki ! (I prefer Loki more heh .)</ins>  
-  <p align="center">
-  https://vitalityloki.straw.page/
-  <p align="center">
-  <img width="1200" height="320" alt="image" src="https://github.com/user-attachments/assets/1fc43f0c-c7c7-4b68-8af3-5902d90f1f41" />
+
+
+
+![68747470733a2f2f73332e616d617a6f6e6177732e636f6d2f776174747061642d6d656469612d736572766963652f53746f7279496d6167652f47435f67555050584c6246526c513d3d2d3436373636323937362e313465326264636238383133613236383534](https://github.com/user-attachments/assets/ac2d904c-1d38-4583-b892-ff4e6bcaad09)
 
 
 
 
  
-
-<p align="center">
-@jace6809 on https://tiktok.com
 
